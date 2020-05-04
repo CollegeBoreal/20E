@@ -1,6 +1,6 @@
 # Été 2020
 
-[Calendrier Hiver 2020](http://www.collegeboreal.ca/wp-content/uploads/2019/02/Calendrier-coll%C3%A9gial-FINAL-HIVER-2020-r%C3%A9v-1.pdf)
+[Calendrier Été 2020](Calendrier-collegial-FINAL-PRINTEMPS-ETE-2020-rev-1.pdf)
 
 ## ÉTAPE 3
 
